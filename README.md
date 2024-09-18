@@ -1,0 +1,1 @@
+# Industry_Based_ESG_and_10K_-Reporting_Validation
